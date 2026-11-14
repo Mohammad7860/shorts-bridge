@@ -4,3 +4,4 @@
 2026-11-10 | What if the Sun suddenly disappeared (8 min 20 s, Earth flies off, vent bacteria survive) | inside-out | What If the Sun Suddenly Disappeared? #shorts | https://www.youtube.com/watch?v=vYQzd7M03F0
 2026-11-11 | What if you fell through thin ice (1-10-1 rule: breathe, kick flat, roll away) | stick-story | What If You Fell Through Thin Ice? #shorts | https://www.youtube.com/watch?v=NiLlGloDznQ
 2026-11-13 | Dice and game tiles found on a 1281 Mongol warship wreck off Takashima, Japan (60 s) | paper-atlas | Dice Found on a 745-Year-Old Mongol Warship #shorts | https://www.youtube.com/watch?v=QDXIK7aZnjU
+2026-11-14 | What if you entered a room hotter than boiling water (Blagden 1775, sweat cooling, ASU still-air twist) | inside-out | What If You Entered a Room Hotter Than Boiling? #shorts | https://www.youtube.com/watch?v=YAtRlXUdMrQ
