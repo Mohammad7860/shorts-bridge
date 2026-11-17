@@ -7,3 +7,4 @@
 2026-11-14 | What if you entered a room hotter than boiling water (Blagden 1775, sweat cooling, ASU still-air twist) | inside-out | What If You Entered a Room Hotter Than Boiling? #shorts | https://www.youtube.com/watch?v=YAtRlXUdMrQ
 2026-11-15 | What if your car fell into a river (seatbelt, window, out; kids first; no door; ~60 s; flood 12 in) | stick-story | Car Sinking in Water? Do THIS in 60 Seconds #shorts | https://www.youtube.com/watch?v=AkGjdDYUAi4
 2026-11-16 | Ashoka after the Kalinga War (Rock Edict 13: 100,000 killed, 150,000 deported; regret carved in stone; dhamma; lion capital and wheel on India's emblem/flag) | paper-atlas | Ashoka: The King Who Said Sorry in Stone #shorts | https://www.youtube.com/watch?v=MvNHdZCt_aA
+2026-11-17 | What if you never slept (Randy Gardner 264 h; microsleeps; hallucinations; 24 h awake like BAC 0.10) | inside-out | What If You Never Slept for 11 Days? #shorts | https://www.youtube.com/watch?v=lMADFMAdtHU
